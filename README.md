@@ -1,0 +1,2 @@
+# Norn
+Trong
